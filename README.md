@@ -1,5 +1,3 @@
-Aqui está a versão atualizada do seu guia de leitura, incluindo todos os livros mencionados:  
-
 ---
 
 # 📚 **Guia de Leitura: Liderança, Solução de Problemas, Comunicação e Resultados**  
